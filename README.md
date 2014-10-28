@@ -1,0 +1,4 @@
+thinking
+========
+
+tech revolution road
